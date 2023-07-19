@@ -1,0 +1,3 @@
+- yo. im a boring person.
+- i do edits and arts.
+- *🌈
